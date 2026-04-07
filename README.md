@@ -1,4 +1,4 @@
-# 👋 Hey, I'm @natabl
+# 👋 Hey, I'm @natabel
 
 🚀 Web3 lawyer | 🧠 Crypto thinker | ⚡ Network validator  
 🌐 Contributor | 🛠 Builder | 🧬 Decentralization enjoyer  
